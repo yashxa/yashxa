@@ -16,7 +16,7 @@
 
 - 💬 Ask me about **Anything**
 
-- 📫 How to reach me **yawasthi6113@gmail.com**
+- 📫 Reach me through **yawasthi6113@gmail.com**
 
 - ⚡ Fun fact **I write poetry**
 
