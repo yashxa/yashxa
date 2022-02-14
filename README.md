@@ -18,7 +18,7 @@
 
 - 📫 Reach me through **yawasthi6113@gmail.com**
 
-- ⚡ Fun fact **I write poetry**
+- ⚡ Fun fact **I write poems**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
